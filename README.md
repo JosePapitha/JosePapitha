@@ -5,7 +5,7 @@
 -->
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on Cloud Technologies
+- 🔭 I’m currently working to be nice and dandy like cotton candy!
 - 🌱 I’m currently learning to regularise my routine
 - 👯 I’m looking to collaborate on hope and peace
 - 🤔 I’m looking for help with bills
