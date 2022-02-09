@@ -6,9 +6,8 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working to be nice and dandy like cotton candy!
-- 🌱 I’m currently learning to regularise my routine
-- 👯 I’m looking to collaborate on hope and peace
-- 🤔 I’m looking for help with bills
+- 🌱 Learning to regularise my routine
+- 👯 Looking to collaborate on hope and peace
 - 💬 Ask me about the time I should have said yes...but I said no
 - 📫 How to reach me: Somewhere between better and best
 - 😄 Pronouns: She/Her
